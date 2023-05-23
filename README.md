@@ -4,7 +4,7 @@
 ##### 🏫 Duksung Women's University, Computer Engineering (2018.03~2022.08)
 ##### 💛 Google Developer Student Clubs(GDSC) (2020.09~2021.08)
 ##### ❤ Prography 7th (2022.02~2022.07)
-##### 🖤 Open Source Contribution Academy (2022.07~)
+##### 🖤 Open Source Contribution Academy (2022.07~2022.10)
 ##### 💙 Samsumg SW Academy For Youth(SSAFY) Mobile Track 8th (2022.07~)
 
 <br/>
