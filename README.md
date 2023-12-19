@@ -4,7 +4,7 @@
 ##### ❤ Prography 7th (2022.02~2022.07)
 ##### 🖤 Open Source Contribution Academy (2022.07~2022.10)
 ##### 💙 Samsumg SW Academy For Youth(SSAFY) Mobile Track 8th (2022.07~2023.06)
-##### 💜 Samsumg SW Academy For Youth(SSAFY) 9th Project Coach (2023.07~)
+##### 💜 Samsumg SW Academy For Youth(SSAFY) 9th Project Coach (2023.07~2023.11)
 
 <br/>
 
